@@ -4,3 +4,5 @@
 ![image](https://github.com/user-attachments/assets/b0930482-0ab6-45fe-ae34-44044cf72db1)
 ![image](https://github.com/user-attachments/assets/f7991dc7-f8ac-417a-979b-2d110080044d)
 ![image](https://github.com/user-attachments/assets/1083fa51-5957-4ee3-88fe-3c498ba96289)
+![2024-12-23 04-28-03](https://github.com/user-attachments/assets/3ab6603e-f50d-47b8-9b74-d48527fdd684)
+[wed.docx](https://github.com/user-attachments/files/18223295/wed.docx)
